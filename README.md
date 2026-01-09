@@ -76,7 +76,7 @@ I am actively pursuing:
 
 ## 📫 Let's Connect
 
-- 💼 LinkedIn: https://www.linkedin.com/in/your-link
+- 💼 LinkedIn: https://www.linkedin.com/in/olufemi-titus-oluyomi
 - 📧 Email: your@email.com
 
 ---
